@@ -10,7 +10,7 @@
        
 💞️ I’m looking to collaborate on game projects as a game planner or game designer.
  
-📫 How to contact me: [Twitter](https://twitter.com/nekoindie)
+📫 How to contact me: [Twitter](https://twitter.com/trnkdev)
  
  
  
