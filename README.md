@@ -1,4 +1,4 @@
-👋 Hi, I’m **Neko Indie** *(@boobosua)*
+👋 Hi, I’m **TRnK** *(@trnkdev)*
  
 👀 I’m interested in game development and game design, especially in pixel art games.
  
